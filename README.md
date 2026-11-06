@@ -1,23 +1,25 @@
-Sou titular de uma conta pessoal do Instagram há aproximadamente 10 anos. Em outubro de 2026, minha conta foi suspensa e a plataforma exigiu reconhecimento facial. Cumpri o procedimento e tive o acesso restabelecido.
+Minha conta pessoal do Instagram, utilizada há aproximadamente 10 anos, foi desativada definitivamente sem que a plataforma apresentasse qualquer justificativa específica.
 
-Em 06/11/2026, às 4h da manhã, recebi nova solicitação de reconhecimento facial. Novamente realizei o procedimento, porém, cerca de 30 minutos depois, minha conta foi definitivamente desativada.
+No mês passado, minha conta já havia sido suspensa e a Meta solicitou reconhecimento facial. Cumpri o procedimento e meu acesso foi restabelecido.
 
-A Meta não informou qual publicação, comentário ou comportamento teria motivado a decisão, apresentando apenas uma justificativa genérica de violação dos Padrões da Comunidade, sem possibilidade de nova contestação.
+Entretanto, em 06/11/2026, por volta das 4h da manhã, recebi novamente uma solicitação de reconhecimento facial. Realizei o procedimento conforme solicitado e, aproximadamente 30 minutos depois, minha conta foi desativada definitivamente.
 
-A conta contém aproximadamente dez anos de registros pessoais e familiares, incluindo fotos do nascimento do meu filho, namoro, casamento e viagens.
+O mais absurdo é que não fui informado sobre qual publicação, comentário, mensagem ou comportamento teria motivado essa decisão. A plataforma apresenta apenas uma alegação genérica de violação dos Padrões da Comunidade e informa que não existe possibilidade de nova análise.
 
-Considero a medida desproporcional e questionável, especialmente pela repetição das suspensões, pelo cumprimento das verificações exigidas e pela ausência de justificativa concreta. Entendo que há falha na prestação do serviço e violação dos deveres de informação e transparência previstos no Código de Defesa do Consumidor.
+Trata-se de uma conta com quase uma década de registros pessoais e familiares, incluindo fotos do nascimento do meu filho, do meu relacionamento, casamento e viagens. São lembranças importantes que não podem ser simplesmente descartadas por uma decisão automatizada ou sem explicação.
 
+Ressalto que cumpri todas as solicitações de reconhecimento de identidade feitas pela própria plataforma, inclusive na ocorrência anterior, quando minha conta foi recuperada.
 
+Não considero aceitável que a Meta exija procedimentos de verificação de identidade e, logo depois, desative definitivamente a conta sem apresentar uma justificativa concreta.
 
 Solicito:
 
 1. A reativação imediata da minha conta, com restabelecimento integral do acesso.
 2. A preservação do perfil e de todos os conteúdos vinculados.
-3. A apresentação de justificativa específica para a desativação, identificando a suposta infração.
-4. Esclarecimentos sobre o reconhecimento facial realizado em 06/11/2026 e os critérios utilizados na decisão.
-5. A revisão efetiva do bloqueio, preferencialmente por análise humana.
+3. A identificação da suposta infração que motivou a desativação.
+4. Esclarecimentos sobre o reconhecimento facial realizado e os critérios utilizados na decisão.
+5. Uma revisão efetiva do bloqueio, preferencialmente por análise humana.
 
-Possuo acesso ao e-mail e telefone cadastrados e estou disponível para confirmar minha identidade.
+Espero uma solução concreta, e não uma resposta automática com referências genéricas aos termos de uso.
 
-Aguardo uma solução concreta. Caso contrário, adotarei as medidas judiciais cabíveis, incluindo pedido de tutela de urgência e eventual indenização pelos danos sofridos.
+Caso não haja solução, adotarei as medidas judiciais cabíveis para buscar a recuperação da conta e a reparação dos prejuízos sofridos.
